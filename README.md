@@ -4,7 +4,7 @@
 
 ---
 
-<img width="2923" height="1644" alt="obraz" src="https://github.com/user-attachments/assets/96caccab-615b-48fc-926e-2da5b44225a7" />
+<img width="800" height="450" alt="me :3" src="https://github.com/user-attachments/assets/faf3d166-4b6a-42dd-8da2-8924a526a076" />
 
 
 ---
